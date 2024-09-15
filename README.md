@@ -1,1 +1,5 @@
-# Detal-web-By-sumit
+# Detal-web-By-sumit![Screenshot 2024-09-16 033405](https://github.com/user-attachments/assets/4db93510-dc2d-4156-9bfa-93b833acc705)
+![Screenshot 2024-09-16 033422](https://github.com/user-attachments/assets/c93e1984-4bb2-4e15-9279-1e66609e6fb2)
+![Screenshot 2024-09-16 033450](https://github.com/user-attachments/assets/0dd90432-bd55-436b-b327-2571b6d86dd8)
+![Screenshot 2024-09-16 033500](https://github.com/user-attachments/assets/c58a86b7-f9bb-4dc3-b866-7aad6343cc34)
+![Screenshot 2024-09-16 033515](https://github.com/user-attachments/assets/bf816bea-3e4a-4b82-99ae-639e89e470d4)
